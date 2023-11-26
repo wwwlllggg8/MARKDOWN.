@@ -16,11 +16,13 @@
 <font size=3 face="黑体">
 ##外型介绍
 
-<font size=3 face="宋体">  ![Uploading 231F8C6AB27D74C0BF26EE126ED8FF6B.png…]()
+<font size=3 face="宋体">  
 
 
 - 身高183 
 - 绝世容颜<font size=3 color=red face="宋体"> 超级大帅哥！！！<font size=3 color=black face="宋体">
+![Uploading 231F8C6AB27D74C0BF26EE126ED8FF6B.png…]()
+
   
  ![Alt text](231F8C6AB27D74C0BF26EE126ED8FF6B.png)
 
