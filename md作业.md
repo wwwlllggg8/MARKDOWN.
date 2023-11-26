@@ -22,11 +22,8 @@
 - 身高183 
 - 绝世容颜<font size=3 color=red face="宋体"> 超级大帅哥！！！<font size=3 color=black face="宋体">
 
-![231F8C6AB27D74C0BF26EE126ED8FF6B](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/db78b736-90bf-439c-ad07-259c0386785c)
+![QQ图片20231119125411](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/2cbc236b-208d-4154-b0be-98089cc265bb)
 
-
-
-![2D16360F1A126BCD1380BAD1D661E21C](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/e2aba0e7-657f-4b58-bd1e-c700b141c529)
 
 
 ###链接：[绝美直拍](https://www.bilibili.com/video/BV1tu411Z7sz/ "跳舞视频")。
