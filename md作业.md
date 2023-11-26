@@ -23,11 +23,8 @@
 - 绝世容颜<font size=3 color=red face="宋体"> 超级大帅哥！！！<font size=3 color=black face="宋体">
 
 
+![231F8C6AB27D74C0BF26EE126ED8FF6B](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/565115d1-b283-40f3-b0c1-60de51d0ab07)
 
-"C:\Users\万丽果\Pictures\Saved Pictures\231F8C6AB27D74C0BF26EE126ED8FF6B.png"
-
-
-  ![Uploading 231F8C6AB27D74C0BF26EE126ED8FF6B.png…]()
 
 
   
