@@ -11,7 +11,6 @@
 - bmti:INFP
 - 人气：对内大<font size=3 color=red face="宋体">TOP
 <font size=3 color=black face="宋体">
-![image](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/fb7c49a7-800a-48ca-b6a2-c94ff6dc59f2)
 
 
 <font size=3 face="黑体">
