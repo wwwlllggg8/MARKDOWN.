@@ -23,17 +23,7 @@
 - 绝世容颜<font size=3 color=red face="宋体"> 超级大帅哥！！！<font size=3 color=black face="宋体">
 
 
-![231F8C6AB27D74C0BF26EE126ED8FF6B](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/565115d1-b283-40f3-b0c1-60de51d0ab07)
-
-
-
-  
- ![Alt text](231F8C6AB27D74C0BF26EE126ED8FF6B.png)
-
-![Alt text](2D16360F1A126BCD1380BAD1D661E21C.png)
-![Alt text](D9D136F619D4FB0F221DBFEC92FA2533.png)
-![Alt text](QQ%E5%9B%BE%E7%89%8720231125232524.gif)![Alt text](QQ%E5%9B%BE%E7%89%8720231125233324.gif)
-
+![231F8C6AB27D74C0BF26EE126ED8FF6B](https://github.com/wwwlllggg8/MARKDOWN./assets/152009015/565115d1-b283-40f3-b0c1-60de51d0ab07
 
 ###链接：[绝美直拍](https://www.bilibili.com/video/BV1tu411Z7sz/ "跳舞视频")。
 <font size=3 face="黑体">
